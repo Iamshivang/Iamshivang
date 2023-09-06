@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **shivangyadav469@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/13z3nUNcflulGN1Cy7EgnrY2bELZyks81/view?usp=sharing](https://drive.google.com/file/d/13z3nUNcflulGN1Cy7EgnrY2bELZyks81/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1s3e8JgowYpw6Dp8qGm-GlDvuXFhI2SVK/view?usp=drive_link)
 
 - ⚡ Fun fact **You can't count your hair.**
 
